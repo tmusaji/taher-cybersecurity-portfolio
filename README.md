@@ -1,6 +1,6 @@
 Taher Musaji
 
-Cybersecurity Enthusiast | VAPT / Offensive Security Aspirant
+Cybersecurity Enthusiast 
 
 Email: tahermusaji071@gmail.com | Phone: +91 902448833
 LinkedIn: https://www.linkedin.com/in/taher-musaji-6a5435328
